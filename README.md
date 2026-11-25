@@ -1,4 +1,4 @@
-# Kum Saati Arenası · Hourglass Arena
+# Birlik Arenası · Squad Arena
 
 Birlik al, diz, birleştir; savaş kendiliğinden döner
 
